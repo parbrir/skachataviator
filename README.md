@@ -7,13 +7,13 @@
 
 Лучшие онлайн-казино:
 
-1. **[ARKADA CASINO](https://clck.ru/3FcBLa "ARKADA CASINO")** (🎁Бонус 150% + 2000FS)
-2. **[R7 CASINO](https://clck.ru/3FcBQu "R7 CASINO")** (🎁Бонус 50% + 50FS)
-3. **[KOMETA CASINO](https://clck.ru/3FcBFf "KOMETA CASINO")** (🎁Бонус 255% + 500FS)
-4. **[CAT CASINO](https://clck.ru/3FcBKb "CAT CASINO")** (🎁Бонус 75% + 50FS)
-5. **[DADDY CASINO](https://clck.ru/3FcBU5 "DADDY CASINO")** (🎁Бонус 100% + 100FS)
+1. **[ARKADA CASINO](https://clck.ru/3FcBLa "ARKADA CASINO")** (🎁 Бонус 150% + 2000FS)
+2. **[R7 CASINO](https://clck.ru/3FcBQu "R7 CASINO")** (🎁 Бонус 50% + 50FS)
+3. **[KOMETA CASINO](https://clck.ru/3FcBFf "KOMETA CASINO")** (🎁 Бонус 255% + 500FS)
+4. **[CAT CASINO](https://clck.ru/3FcBKb "CAT CASINO")** (🎁 Бонус 75% + 50FS)
+5. **[DADDY CASINO](https://clck.ru/3FcBU5 "DADDY CASINO")** (🎁 Бонус 100% + 100FS)
 
-Для получения бонуса необходимо в выбранном казино ввести промокод «1BONUSUP»
+💡 Для получения бонуса необходимо в выбранном казино ввести промокод «1BONUSUP»
 
 
 
